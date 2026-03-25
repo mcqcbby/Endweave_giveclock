@@ -1,5 +1,4 @@
 
-![Uploading O1CN01ptEKuf1FRilgBaCql_!!2220199290484-0-cib.310x310.jpg…]()
 
 Bell Giving Plugin
 
